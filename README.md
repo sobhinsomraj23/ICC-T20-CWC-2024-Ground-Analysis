@@ -1,0 +1,1 @@
+# ICC-T20-CWC-2024-Ground-Analysis
